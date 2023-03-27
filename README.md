@@ -10,11 +10,14 @@ Your final portfolio allows you to showcase the work you have done for this cour
 
 ## Final Reflection Guidelines
 
+The reflection can be as long or short as you need to accomplish the following three goals, but as a guideline, should probably be about 1 to 2 pages. There are no formatting rules. 
+
+The goals for your written reflection are:
+
 - **Self-assign a grade.** This will be your grade for the course unless there is a large (more than one-third letter grade) discrepancy between my assessment and yours, which there should not be if you've attended your check-ins.
 - **Make some justifications for this grade using the pieces of evidence you have provided.** This can look like whatever you want it to look like. You can format it as a bulleted list, as paragraphs, as a table -- whatever makes sense for your brain.
 - **Include both praise and critique.** No matter how you feel like you did, make sure you point out what you did well! Point out and own your successes. Include some compassionate critique too; where do you have capacity to grow? 
 
-The reflection can be as long or short as you need to accomplish these goals, but as a guideline, should probably be about 1 to 2 pages. There are no formatting rules.  
 
 ## Possible Pieces of Evidence
 
