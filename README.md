@@ -1,3 +1,3 @@
-# 270 Portfolio Template
+# 270 Portfolio
 
-Template for a Final Portfolio for CMSC 270 at Lawrence University.
+Amir Zarandi's Final Portfolio for CMSC 270 at Lawrence University.
