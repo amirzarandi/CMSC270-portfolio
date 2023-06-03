@@ -1,8 +1,4 @@
 # Final Reflection
-### Amir Zarandi
-
-
-## Grade Assignment
 
 Based on my performance throughout the course and the evidence I have provided, I would like to self-assign a grade of **A** for CMSC 270. I believe my work demonstrates a strong understanding of the course material and showcases my ability to apply concepts in various contexts. I have met the requirements for each learning goal and have gone above and beyond in some areas.
 
